@@ -1,7 +1,31 @@
-子啊的肌肤
+# God Blogger
 
-# 飞机
+断续的曲子，最美或最温柔的 
 
-[kan](https://www.bilibili.com/video/BV1Yb411a7ty?from=search&seid=2303064867434956717)
+夜，带着一天的星
+
+记忆的梗上，谁不有 
+
+两三多聘婷，披着情绪的花
+
+无名的展开
+
+野荷的香馥，
+
+每一瓣静处的月明。
+
+湖上风吹过，头发乱了，或是
+
+水面皱起像鱼鳞的锦。
+
+四面里的辽阔，如同梦
+
+荡漾着中心的彷徨的过往
+
+不着痕迹，谁都
+
+认识那图片，
+
+沉在水底记忆的倒影!                      《记忆》. 林微因
 
 ![](https://raw.githubusercontent.com/yz-god/xiaobaiku/master/img/20200409160556.png)
